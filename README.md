@@ -1,1 +1,0 @@
-# ikurd.github.io
